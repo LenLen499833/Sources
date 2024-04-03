@@ -40,6 +40,7 @@
     - [Did the citizens of the Soviet Union dislike their government?](#did-the-citizens-of-the-soviet-union-dislike-their-government)
     - [Further reading](#further-reading-1)
   - [On Mao, Maoism, and Marxism-Leninism-Maoism, and the PRC](#on-mao-maoism-and-marxism-leninism-maoism-and-the-prc)
+    - [Is there a continuity between Deng and Mao?](#is-there-a-continuity-between-deng-and-mao)
     - [Is China State Capitalist?](#is-china-state-capitalist)
     - [Is China a Democracy?](#is-china-a-democracy)
     - [Workers rights](#workers-rights)
@@ -582,6 +583,8 @@
 - [Is china persecuting gay people?](https://twitter.com/isgoodrum/status/1366919923390324737)
 - [Deng Xiaoping - on the question of national minorities and Han chauvinism](https://redsails.org/the-question-of-minority-nationalities-in-the-southwest/)
 - [Did China really kill / commit infanticide on millions of girls during the 1-child policy?](https://www.washingtonpost.com/news/worldviews/wp/2016/11/30/researchers-may-have-found-many-of-chinas-30-million-missing-girls/) [2](https://www.cnn.com/2016/12/01/asia/china-missing-girls/index.html)
+
+## Is there a continuity between Deng and Mao?
 
 ### Is China State Capitalist?
 
